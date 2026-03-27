@@ -5,6 +5,8 @@
 
 
 ## ATTACH THE CORRECT CIRCUIT
+![IMG20260327115801](https://github.com/user-attachments/assets/733b107e-7fcd-4385-a84a-6babb7c8295c)
+
 
 ## GRAPHS
 
